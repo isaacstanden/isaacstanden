@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @isaacstanden
+- 👀 I’m interested in atmospheric hydrogen
+- 🌱 I’m currently studying for my Masters in Earth Science by Research
+- 😄 Pronouns: they/them
+- ⚡ Fun fact: I crochet and knit in my spare time
